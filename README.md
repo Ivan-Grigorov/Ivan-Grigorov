@@ -1,4 +1,4 @@
-### Hi there, I'm Ivan <img src="https://media.giphy.com/media/a6XgGb3K1slXuMi1KR/giphy.gif" width="27px" height="27px">
+### Hi there, I'm Ivan <img src="https://media.giphy.com/media/a6XgGb3K1slXuMi1KR/giphy.gif" width="24px" height="24px">
 
 
 Find me elsewhere :earth_americas: :
