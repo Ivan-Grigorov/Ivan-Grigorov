@@ -13,4 +13,4 @@ Find me elsewhere :earth_americas: :
 - ⚡ Interesting fact: I love coding as much as I love to do sports
 - 💻 Building websites, coding and using Wordpress are part of my everyday life
 - 💬 SEO and Digital Marketing are part of my background
-- 📫 Contact me at i.grigorov.official@gmail.com
+- 📫 Contact me at  i.grigorov.official@gmail.com
